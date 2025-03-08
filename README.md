@@ -1,6 +1,6 @@
 # **KARTHICK KRISHNAN**  
 🔹 **Integrations Architect | ServiceNow Specialist**  
-📍 Bengaluru, India | 📞 +91 8105464195 | ✉️ karthick0014@gmail.com | 🔗 [LinkedIn Profile]  
+📍 Bengaluru, India | 📞 +91 8105464195 | ✉️ karthick0014@gmail.com 
 
 ---
 
